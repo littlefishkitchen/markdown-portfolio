@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. download game
+2. install
+3. kick ass
